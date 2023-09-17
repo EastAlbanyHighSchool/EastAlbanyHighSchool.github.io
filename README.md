@@ -1,0 +1,1 @@
+# EastAlbanyHighSchool.github.io
